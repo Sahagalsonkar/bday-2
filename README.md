@@ -1,4 +1,4 @@
-## Happy Birthday!!!
+## Happy Birthday Wishes !!!
 
 ### Wish someone special happy birthday in a special way.
 
